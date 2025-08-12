@@ -26,7 +26,7 @@ Freya, a girl with freckles across her nose, shifted on the bench to make room, 
 
 Her mother had prepared her for this ritual, explaining the intricacies and expectations, yet Laila couldn't shake off the nervousness that had taken up residence in her stomach. Before she could dwell on her fears, a man stood up and walked to the pot. He reached in and pulled out a medallion, his eyes scanning the room.
 
-A hushed silence fell. Laila recognized him – Todd, a farmer from the outskirts of the village. He was a large man, his face weathered, and his beard thick with red hair. She'd never seen him in the sauna before. A wave of murmurs swept through the girls. "Todd?" "Oh, gods, who's it going to be?" "He looks...rough." Laila's heart pounded as she overheard them. What if he would take her medallion? There is a chance, this is not how she dreamed it would be.
+A hushed silence fell. Laila recognized him – Todd, a farmer from the outskirts of the village. He was a large man, his face weathered, and his beard thick with red hair. A wave of murmurs swept through the girls. "Todd?" "Oh, gods, who's it going to be?" "He looks...rough." Laila's heart pounded as she overheard them. What if he would take her medallion? There is a chance, this is not how she dreamed it would be.
 
 Todd read the name inscribed on the medallion, "Elara". Elara stood up, a sigh escaping her lips as she frowned. The other girls exchanged understanding glances as Todd approached her. In this moment, social status and appearance meant nothing - everyone had an equal chance before the gods. Laila saw her take a small, involuntary step back as Todd approached.
 
